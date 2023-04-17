@@ -1,5 +1,5 @@
-### Hi there 👋
-
+# Hi I am Al Jude V. Tubato 3rd year collage BSIT and i studied in CPU 👋
+## - ⚡ I am talkative, fun, happy, adventurous and understaning,
 <!--
 **arujudo3/arujudo3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
